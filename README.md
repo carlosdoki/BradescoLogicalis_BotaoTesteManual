@@ -1,0 +1,1 @@
+# BradescoLogicalis_BotaoTesteManual
